@@ -1,10 +1,10 @@
-🔭 I’m currently working on TenGate 10g8 Agency
+🔭 I’m currently working at TenGate 10g8 Agency
 
 🌱 I’m currently learning everything
 
 👯 I’m looking to collaborate on pending ideas and Crypto Projects
 
-👨‍💻 All of my projects are available at https://github.com/zacktm
+👨‍💻 All of my projects are available || ✨hidden✨:D at https://github.com/zacktm
 
 📫 How to reach me zack@10g8.com
 
